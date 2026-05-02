@@ -50,6 +50,9 @@ https://www.linkedin.com/in/caio-felipe-3321a3324/
 📱 WhatsApp:
 +55 43 99646-0432
 
+📧 Email:
+caiofep.maturano@gmail.com
+
 ---
 
 ## ⚡ Destaque
